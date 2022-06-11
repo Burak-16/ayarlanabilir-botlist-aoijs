@@ -1,1 +1,0 @@
-# ayarlanabilir-botlist-aoijs
